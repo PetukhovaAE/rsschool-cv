@@ -1,6 +1,7 @@
 # Alina Petukhova
 
 ### Contact information:
+**Location:** Tomsk, Russia  
 **Phone:** +7 906 980 98 67  
 **E-mail:** Petukhovaae@yandex.ru  
 **Telegram:** @petukhovalina  
